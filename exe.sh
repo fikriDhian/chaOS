@@ -2,5 +2,5 @@ ini filenya
 
 Bismillah Moga dapat kaos
 
-edit ini aja ahhh...
+semoga g kena pajak
 
